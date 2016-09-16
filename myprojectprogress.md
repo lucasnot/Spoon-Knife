@@ -1,0 +1,1 @@
+I have been able to find a project for this class. After talking to my manager at the VCC helpdesk, She mentioned that they need an updated time card system. The one they are currently using is out of date and needs upgrades. That is the project I plan to work on.
